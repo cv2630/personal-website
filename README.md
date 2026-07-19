@@ -1,4 +1,4 @@
-# Vincent Chen's (@vchen60) Personal Website!
+# Vincent Chen's (@cv2630) Personal Website!
 
 New personal website! Do please reach out to me via email!! chen.vincent.ny@gmail.com
 
